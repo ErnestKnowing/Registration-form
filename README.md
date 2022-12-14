@@ -1,1 +1,1 @@
-https://ernestknowing.github.io/registration-form/form
+https://ernestknowing.github.io/registration-form/fo
